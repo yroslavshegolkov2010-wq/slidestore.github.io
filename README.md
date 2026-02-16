@@ -1,1 +1,0 @@
-# slidestore.github.io
